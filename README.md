@@ -1,1 +1,1 @@
-# 102042300061_GraceMagarethaSirait_Jurnal1
+# Jurnal_1
